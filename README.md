@@ -1,3 +1,1 @@
-# Eric E
-
-## Designer
+# I'am Eric
